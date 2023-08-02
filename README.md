@@ -1,12 +1,14 @@
 ### Zdravo, ja sam Aca Lukas! 🎤
 
-Dobrodošli na moj jaki GitHub profil. Iako nema potrebe da se ja nešto posebno predstavljam, evo nekoliko stvari koje biste možda želeli da znate o meni:
+Prijatelji, dobrodošli, u svet gde pesma se belo sija,
+Gde hitovi odzvanjaju, gde melodija nek' vas krijepi, nek' vas vija.
 
-- 🎵 **Muzička Karijera:** Sa preko dvadeset godina iskustva na sceni, moji hitovi odzvanjaju širom Balkana. Od turbo-folka do popa, moj glas je nezamenljiv.
-- 💽 **Albumi:** Izdao sam mnoge albume koji su postali klasici. Ako želite nešto brzo kao moje refrene, probajte moj novi album!
-- ❄️ **Omiljeni "Hobi":** Možda ste čuli razne priče o mojim... hobiima. Ali šta mogu reći, živim život punim plućima!
-- 🎙️ **[Koncerti i Nastupi](https://lukasaca.rs/koncerti/):** Ako želite pravu žurku, pridružite mi se na nekom od mojih koncerata. Garantujem dobru zabavu!
+- 🎵 **Putem Muzike:** Kroz stihove što odjekuju širom Balkana, bele note, crni ključ, muzika je moj Balkana.
+- 💽 **Albumi kao "Belo" Zlato:** Svaki album, svaka pesma, nek' vas pogodi, nek' vas zarazi, belo zlato muzike, nek' vam srce slavi.
+- ❄️ **Hobi Što Se Čuje, Ne Vidi:** Možda ste čuli za moje "bele" navike, ali moj pravi prah je melodija što se ne krije.
+- 🎙️ **[Koncerti, Nastupi, Pesma što ne Prestaje](https://lukasaca.rs/koncerti/):** Dođite, neka vas pesma nosi, na koncertima mojim sve je belo, muzika je prah što srce prostaje.
 
-Nemojte zaboraviti da me pratite na društvenim mrežama, a ako ste ovde slučajno zalutali u potrazi za mojom muzikom, znajte da se nalazi na svim popularnim platformama za strimovanje.
+U svetu gde belo je melodija, gde pesma živi,
+Tu sam ja, Aca Lukas, neka vam srce bude k'o belo krilo, neka vam duša bude srećno, neka vas pesma uvek snazi.
 
-> "Muzika je most koji spaja ljude; neka vas moji hitovi spoje sa dobrim vremenima." - Aca Lukas
+> "Muzika je belo zlato, pesma je ključ, neka vas moji hitovi vode, neka vam srce bude belo, neka duša vam bude ispunjena." - Aca Lukas
